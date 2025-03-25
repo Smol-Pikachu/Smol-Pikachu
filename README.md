@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Smol-Pikachu
-- 👀 I’m interested in discord, littls space, anime
+- 👀 I’m interested in discord, 
 - 🌱 I’m currently learning idk
 - 💞️ I’m looking to collaborate on idk
 - 📫 How to reach me Smol_pikachu #2927 on discord :)
